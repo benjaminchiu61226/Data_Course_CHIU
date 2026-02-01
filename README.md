@@ -6,8 +6,6 @@ This README file contains information about my uploaded assignments
 
 This README file contains information about my uploaded assignments
 
-This README file contains information about my uploaded assignments
-
 I'm sorry for not doing this earlier
 
 Sorry for not doing this sooner
