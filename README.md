@@ -10,9 +10,10 @@ I'm sorry for not doing this earlier
 
 Sorry for not doing this sooner
 
-I got confused with all the new terminology  
-I hope to learn more in this clas  
-I hope to learn more in this clas  
+I got confused with all the new terminology
+
+I hope to learn more in this class
+
 hahahahah I don't know what I did
-hahahahah I don't know what I did
+
 I hope I am doing something right.
