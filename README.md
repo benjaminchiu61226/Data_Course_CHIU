@@ -6,3 +6,4 @@ I'm sorry for not doing this earlier
 Sorry for not doing this sooner
 Sorry for not doing this sooner
 Sorry for not doing this sooner git commit -m 1st commit git push
+I got confused with all the new terminology  
