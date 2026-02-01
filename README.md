@@ -17,3 +17,4 @@ I hope to learn more in this class
 hahahahah I don't know what I did
 
 I hope I am doing something right.
+I know how to do stuff now, kind of. I hope to get better
