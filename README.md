@@ -12,6 +12,4 @@ I'm sorry for not doing this earlier
 
 Sorry for not doing this sooner
 
-Sorry for not doing this sooner
-
 I got confused with all the new terminology  
