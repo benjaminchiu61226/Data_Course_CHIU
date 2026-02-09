@@ -1,0 +1,5 @@
+final_project_idea.txt
+
+2. Using R, I want to investigate the impact of invasive species in ecosystems and whether there is significant impact in native species richness.
+
+3. To investigate this, I will analyze the data from apps like iNaturalist and other citizen science sources
